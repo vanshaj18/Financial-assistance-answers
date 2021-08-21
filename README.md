@@ -9,8 +9,8 @@ I am pursuing my major in physics. Also, I am interested in learning about the u
 ## Tell us about your plans for this course. What steps will you take to help you complete the course work and receive a certificate? 
 I have made a plan to complete the course before the due date itself by completing all assignments on or before time. I intend to participate in the Discussion Forums, which I have found to supplement my learning immensely in the other online courses I have taken on edX. I am pursuing me under graduation in integrated masters of physics from a reputed college in India. I have a keen interest in doing the assignments and extra study from other sources to supplement the study with edx. I want to complete the course due to my liking for the course and also to showcase the study in form of certificate on my resume. This course will boost my entrance prospects for higher education after graduation from my institute. It will help me perform better in selecting my path for higher studies and give me an edge over my competitors. A verified certificate will attach credibility to the certificate I receive from this course. Financial Aid will help me take this course without any adverse impact on my monthly essential needs. I need this course very badly for my CV and for increasing my knowledge about the subject. I am doing my college on an education loan already, so my pocket doesn't allow me to afford this. So I am badly in need of this financial aid.
 
-
-
+# Coursera Financial assistance 
+Just ctrl c and ctrl v anything on their portal, right now I believe they are not checking the relevancy of the content just the word limit. This might change in future.
 
 
 
