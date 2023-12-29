@@ -2,6 +2,8 @@
 
 #### These answers are written as a means to help students get the financial aid on platforms like EdX and Coursera. These are tested on both the platforms, myself and have worked for both. EdX check the answers and give at max 90% scholarship while Coursera do provide full financial aid on their platform. Earlier Courersa didnt not used to check the content of the financial answers, but recently they started to check, but the passing is still easy.
 
+_Please Note_: Coursera recently changed it scholarship processing and changed allocating maximum scholarship to 90% matching the EdX method.
+
 Here are the questions as per what are asked in EdX platform. You can copy paste the same thing on Coursera.
 
 ## Tell us about your current financial situation? 
